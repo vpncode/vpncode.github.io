@@ -1,1 +1,1 @@
-# vpncode.github.io
+# KINGSTORE
